@@ -28,7 +28,7 @@
 ## 🤝 Connect With Me
 
 - GitHub: [@aslah465](https://github.com/aslah465)
-
+- linkedin :https://www.linkedin.com/in/aslah-sachu-87969a422
 ---
 ⭐ *Learning every day, building step by step!*## Hi there 👋
 
